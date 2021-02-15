@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @vince-dazn (@vikkio88 professional account)
+- 👋 Hi, I’m @vince-dazn ([@vikkio88](https://github.com/vikkio88) professional account)
 - 👀 I’m interested in pizza
 - 🌱 I’m currently learning how to drive immaginary spaceships
 - 💞️ I’m looking to collaborate on canceling pineapple pizza from the world.
